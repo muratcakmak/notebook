@@ -1,0 +1,2 @@
+# notebook
+My mind dumb
